@@ -7,4 +7,3 @@
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... [Aadesh Rasal](arasal885@gmail.com)
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I'm Handsome :D 
